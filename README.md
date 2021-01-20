@@ -1,4 +1,4 @@
-# VirtualOpenHouse.github.io
+# Virtual Open House
 What is Mercer's Kitchen?
 
 "A mix of online materials and hand's on activities"
