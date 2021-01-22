@@ -28,8 +28,7 @@ Developers Outreach, Google Funded (& interrupted by Global Pandemic)
 
 Piloting Chromebook Repair Practicum in Edmonton Public Schools
 
-Travelling Team
-- Member of Parliament Recognition Award for mentoring elementary school in Scratch
+Travelling Team: 2017 Math, Science, and Technology Aware from Member of Parliament (mentoring elementary school in Scratch)
 
 Mr. Mercer's Awards and Recognitions
 
